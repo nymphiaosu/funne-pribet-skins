@@ -13,4 +13,4 @@ some decently popular people may or may not have a heart attack while scrolling 
 ![screenshot143](https://user-images.githubusercontent.com/117044049/201496408-089558dc-8821-4eda-99b1-13cd7584bc7b.png)
 
 # [selyu vento edit](https://www.mediafire.com/file/cw9u9o885abfk7k/selyu_vento_edit.osk/file) | [Preview](https://www.youtube.com/watch?v=bifEZg40IWQ)
-![screenshot143](https://user-images.githubusercontent.com/117044049/201496408-089558dc-8821-4eda-99b1-13cd7584bc7b.png)
+![screenshot144](https://user-images.githubusercontent.com/117044049/201496582-c6e236db-5a33-43f2-864d-d459ef843b90.png)
