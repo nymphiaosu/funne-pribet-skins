@@ -2,8 +2,8 @@
 
 some decently popular people may or may not have a heart attack while scrolling through this :tf:
 
-# [Trinoline Remaster](https://www.mediafire.com/file/a2kxzco61o8w3zq/Trinoline_Remaster.osk/file) | [Preview](https://youtu.be/NIwMJGnCzqE)
-## [original low res ver](https://mega.nz/file/cExi0Kga#-U0tyrp1TTJsuq-jdfaf8rf6bngti-Br1BJVKFC9Bjo) by Nymphia#8610
+# [Trinoline Remaster](https://www.mediafire.com/file/a2kxzco61o8w3zq/Trinoline_Remaster.osk/file) by Me | [Preview](https://youtu.be/NIwMJGnCzqE)
+## [original low res ver](https://mega.nz/file/cExi0Kga#-U0tyrp1TTJsuq-jdfaf8rf6bngti-Br1BJVKFC9Bjo) by V**nto
 ![screenshot140](https://user-images.githubusercontent.com/117044049/201496171-ac86d0c1-c9c8-4578-a5a8-ac972019b4bb.png)
 
 # [morgan natori](https://www.mediafire.com/file/420v0lsvd064l7t/-__natori.osk/file) | [Preview](https://youtu.be/h8HBf7jSAFM)
