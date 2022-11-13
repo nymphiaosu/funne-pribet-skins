@@ -26,3 +26,6 @@ some decently popular people may or may not have a heart attack while scrolling 
 
 # [you make me sick](https://www.mediafire.com/file/wc2hnfa5lt6t3d2/you_make_me_sick.osk/file) | No Preview Available
 ![screenshot182](https://user-images.githubusercontent.com/117044049/201545533-62ea43d0-5070-4b61-8825-07710bd81f1e.png)
+
+# [aosora old skin](https://www.mediafire.com/file/sd1vu6rtfmo01pd/ddd_x13.osk/file) | No Preview Available
+![screenshot183](https://user-images.githubusercontent.com/117044049/201545728-c41a5c74-75b5-4c40-85d5-ae47cc728662.png)
