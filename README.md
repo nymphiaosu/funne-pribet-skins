@@ -9,7 +9,7 @@ some decently popular people may or may not have a heart attack while scrolling 
 # [morgan natori](https://www.mediafire.com/file/420v0lsvd064l7t/-__natori.osk/file) | [Preview](https://youtu.be/h8HBf7jSAFM)
 ![screenshot141](https://user-images.githubusercontent.com/117044049/201496223-2eda4011-c451-494a-9d26-81e10e58a952.png)
 
-# [howl exhibit c](https://www.mediafire.com/file/pr7fajyi13kdw2o/exhibit_c.osk/file)
+# [howl exhibit c](https://xohlity.s-ul.eu/w1tdOogd)
 ![screenshot143](https://user-images.githubusercontent.com/117044049/201496408-089558dc-8821-4eda-99b1-13cd7584bc7b.png)
 
 # [selyu vento edit](https://www.mediafire.com/file/cw9u9o885abfk7k/selyu_vento_edit.osk/file) | [Preview](https://www.youtube.com/watch?v=bifEZg40IWQ)
