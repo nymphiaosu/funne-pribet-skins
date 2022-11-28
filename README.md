@@ -41,6 +41,7 @@ some decently popular people may or may not have a heart attack while scrolling 
 ![image](https://user-images.githubusercontent.com/45379301/204318896-b9761a55-1189-4272-abaa-2612df883729.png)
 
 # [Rafis HDDT Original](https://download1648.mediafire.com/cachuvbq74jg/iv3mtb5kydsrs4c/Rafis+HDDT.osk) | [Preview](https://www.youtube.com/watch?v=M6SPs67ZPGw)
-[Context](![image](ht![screenshot438](https://user-images.githubusercontent.com/45379301/204318536-b5ff4c51-d9db-428d-9758-26197916be91.png)
+[Context](https://user-images.githubusercontent.com/45379301/204319469-ec7124e1-86bd-4bbd-8193-42647629b38a.png)
+
 ![image](https://user-images.githubusercontent.com/45379301/204319265-a53e0d3c-66e3-46b4-bf78-1d704c1fd9e2.png)
 
