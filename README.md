@@ -24,7 +24,7 @@ some decently popular people may or may not have a heart attack while scrolling 
 # [Unicorn-Chan](https://femboye.s-ul.eu/StyrIQEw)
 ![screenshot180](https://user-images.githubusercontent.com/117044049/201545283-d1c4607a-6e9d-4c2c-b32d-7f577d1893f8.png)
 
-# [you make me sick](you make me sick.osk)
+# [you make me sick](https://femboye.s-ul.eu/89PcnFDc)
 ![screenshot182](https://user-images.githubusercontent.com/117044049/201545533-62ea43d0-5070-4b61-8825-07710bd81f1e.png)
 
 # [aosora old skin](https://femboye.s-ul.eu/fUO399uf)
