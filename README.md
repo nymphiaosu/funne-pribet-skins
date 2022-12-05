@@ -21,6 +21,9 @@ some decently popular people may or may not have a heart attack while scrolling 
 # [if my heart had wings](https://femboye.s-ul.eu/vV6DYb9i)
 ![screenshot152](https://user-images.githubusercontent.com/117044049/201505492-03a1a6d1-6991-44ae-a64c-0f70841966a1.png)
 
+# [if my heart had wings v2](https://femboye.s-ul.eu/pRh9kRMM)
+![image](https://user-images.githubusercontent.com/45379301/205751520-e1012da1-bf43-42c6-b656-9e4c7e0c6e92.png)
+
 # [Unicorn-Chan](https://femboye.s-ul.eu/StyrIQEw)
 ![screenshot180](https://user-images.githubusercontent.com/117044049/201545283-d1c4607a-6e9d-4c2c-b32d-7f577d1893f8.png)
 
