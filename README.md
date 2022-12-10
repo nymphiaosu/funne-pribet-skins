@@ -48,4 +48,11 @@ some decently popular people may or may not have a heart attack while scrolling 
 
 ![screenshot502](https://user-images.githubusercontent.com/45379301/205456423-1f334c2f-343f-42bd-b093-7fdb9f958862.png)
 
+# [Seoul V9 Personal Shige Edit](https://femboye.s-ul.eu/j4j9TgA1) | [Preview](https://youtu.be/5Ai_tGU9oMc)
+![screenshot017](https://user-images.githubusercontent.com/45379301/206877990-c33e1b56-b2a7-4ad9-95c4-2f0333a6400d.png)
+
+# [aetrnaMikoto](https://femboye.s-ul.eu/1Oray1gW) | [Preview](https://youtu.be/6w_BfxtB6wA)
+![screenshot018](https://user-images.githubusercontent.com/45379301/206878153-e741a442-39c7-4e8e-9139-79026386792e.png)
+
+
 
