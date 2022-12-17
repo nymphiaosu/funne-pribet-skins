@@ -79,3 +79,4 @@ ugly ass skin doesnt deserve screenshot, thekushvanman hitcircles and cursor, al
 
 # [emertxe howl skin thing](https://cdn.discordapp.com/attachments/973579452330147860/1053380767004229713/kamui.osk) | [Preview](https://www.youtube.com/watch?v=aUrTP416Cw4)
 ![screenshot083](https://user-images.githubusercontent.com/45379301/208218762-87947e4a-1961-4aac-94ee-a16aefb1215e.jpg)
+cursor is in one of the folders inside the skin nOOBER!!!!!!!!!!
