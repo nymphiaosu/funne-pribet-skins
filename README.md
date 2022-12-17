@@ -76,3 +76,6 @@ these are the only modified icons in this tp
 
 # [gayass polish player app skin](https://cdn.discordapp.com/attachments/795679808779583579/1053478821266985031/app.osk)
 ugly ass skin doesnt deserve screenshot, thekushvanman hitcircles and cursor, all that matters 
+
+# [emextre howl skin thing](https://cdn.discordapp.com/attachments/973579452330147860/1053380767004229713/kamui.osk) | [Preview](https://www.youtube.com/watch?v=aUrTP416Cw4)
+![screenshot083](https://user-images.githubusercontent.com/45379301/208218762-87947e4a-1961-4aac-94ee-a16aefb1215e.jpg)
