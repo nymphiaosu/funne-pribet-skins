@@ -70,10 +70,6 @@ some decently popular people may or may not have a heart attack while scrolling 
 ![image](https://user-images.githubusercontent.com/45379301/208217931-98f604c3-505d-49cc-9f07-757c4d0271d8.png)
 there's only one spider in this tp lmao
 
-# [Sunix by Meatius.zip](https://github.com/nymphiaosu/funne-pribet-skins/files/10250529/Sunix.by.Meatius.zip) | [Preview](https://youtu.be/020TKjodzSo)
-![image](https://user-images.githubusercontent.com/45379301/208218046-8ba84e02-53ca-45cb-9832-e77dcdc8c520.png)
-these are the only modified icons in this tp
-
 # [gayass polish player app skin](https://cdn.discordapp.com/attachments/795679808779583579/1053478821266985031/app.osk)
 ugly ass skin doesnt deserve screenshot, thekushvanman hitcircles and cursor, all that matters 
 
