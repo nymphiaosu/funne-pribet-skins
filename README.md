@@ -60,3 +60,19 @@ some decently popular people may or may not have a heart attack while scrolling 
 # [THEKUSHVANMAN SKIN](https://femboye.s-ul.eu/DXv1XHSH)
 ![image](https://user-images.githubusercontent.com/45379301/206916037-0a9e3c37-13b1-4369-a8f4-5ec2dfe473d5.png)
 
+# [ToshDeluxe Texture Pack.zip](https://github.com/nymphiaosu/funne-pribet-skins/files/10250496/ToshDeluxe.Texture.Pack.zip) | [Preview](https://youtu.be/kkNgy_KcH5Q)
+![image](https://user-images.githubusercontent.com/45379301/208217808-00f3b37d-7dc4-449e-8789-e8363e58b436.png)
+![image](https://user-images.githubusercontent.com/45379301/208217852-da11e5f6-6558-4a0b-9b2d-419e91c5e3d3.png)
+![image](https://user-images.githubusercontent.com/45379301/208217879-be21c18f-c445-49e8-91f6-d735ee5365b1.png)
+![image](https://user-images.githubusercontent.com/45379301/208217904-0ebca0e9-afb8-476e-b17c-fd731870bd06.png)
+![image](https://user-images.githubusercontent.com/45379301/208217914-90e8cacc-10be-4a7b-aa73-5f0dc94d07b0.png)
+![image](https://user-images.githubusercontent.com/45379301/208217920-410180b0-110d-4c9f-9c5a-a1bdb3f7ce67.png)
+![image](https://user-images.githubusercontent.com/45379301/208217931-98f604c3-505d-49cc-9f07-757c4d0271d8.png)
+there's only one spider in this tp lmao
+
+# [Sunix by Meatius.zip](https://github.com/nymphiaosu/funne-pribet-skins/files/10250529/Sunix.by.Meatius.zip) | [Preview](https://youtu.be/020TKjodzSo)
+![image](https://user-images.githubusercontent.com/45379301/208218046-8ba84e02-53ca-45cb-9832-e77dcdc8c520.png)
+these are the only modified icons in this tp
+
+# [gayass polish player app skin](https://cdn.discordapp.com/attachments/795679808779583579/1053478821266985031/app.osk)
+ugly ass skin doesnt deserve screenshot, thekushvanman hitcircles and cursor, all that matters 
