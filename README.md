@@ -74,8 +74,8 @@ unfinished doesnt have the failsound and applause literally unplayable smh i fel
 ![image](https://user-images.githubusercontent.com/45379301/208217931-98f604c3-505d-49cc-9f07-757c4d0271d8.png)
 there's only one spider in this tp lmao
 
-# [gayass polish player app skin](https://cdn.discordapp.com/attachments/795679808779583579/1053478821266985031/app.osk)
-ugly ass skin doesnt deserve screenshot, thekushvanman hitcircles and cursor, all that matters 
+# [app](https://cdn.discordapp.com/attachments/795679808779583579/1053478821266985031/app.osk)
+too lazy to screenshot, thekushvanman hitcircles and cursor, all that matters 
 
 # [emertxe howl skin thing](https://cdn.discordapp.com/attachments/973579452330147860/1053380767004229713/kamui.osk) | [Preview](https://www.youtube.com/watch?v=aUrTP416Cw4)
 ![screenshot083](https://user-images.githubusercontent.com/45379301/208218762-87947e4a-1961-4aac-94ee-a16aefb1215e.jpg)
