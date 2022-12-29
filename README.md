@@ -80,3 +80,7 @@ too lazy to screenshot, may or may not be removed if app releases it
 # [emertxe howl skin thing](https://cdn.discordapp.com/attachments/973579452330147860/1053380767004229713/kamui.osk) | [Preview](https://www.youtube.com/watch?v=aUrTP416Cw4)
 ![screenshot083](https://user-images.githubusercontent.com/45379301/208218762-87947e4a-1961-4aac-94ee-a16aefb1215e.jpg)
 cursor is in one of the folders inside the skin nOOBER!!!!!!!!!!
+
+# [howl ncro edit](https://ncronfntophliac.s-ul.eu/mTspLkm9)
+![image](https://user-images.githubusercontent.com/45379301/209898235-d80299aa-2fe9-4ca2-9ede-c2ad1b50fb3c.png)
+not private but ncron is a real one and the skin is good so here you go
