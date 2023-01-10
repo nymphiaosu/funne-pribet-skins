@@ -6,8 +6,8 @@ some decently popular people may or may not have a heart attack while scrolling 
 ## [original low res ver](https://mega.nz/file/cExi0Kga#-U0tyrp1TTJsuq-jdfaf8rf6bngti-Br1BJVKFC9Bjo) by V*nto
 [![screenshot141](https://user-images.githubusercontent.com/117044049/201496171-ac86d0c1-c9c8-4578-a5a8-ac972019b4bb.png)](https://femboye.s-ul.eu/xMXED70W)
 
-![image](https://user-images.githubusercontent.com/45379301/211430220-c6f45479-02d1-404e-97fb-fb25126174a5.png)
-thanks rando on twitter for dmcaing a minor :thumbsup:
+![yippe!](https://user-images.githubusercontent.com/45379301/211455823-af3a364b-0734-4844-9857-0a6197d4309a.png)
+this is where the natori skin should've been, thanks coven
 
 # [howl exhibit Ⅲ](https://files.getrektby.us/gciIqT7VKFcI.osk) | [Preview](https://youtu.be/WRcYYQacXh0)
 [![screenshot143](https://user-images.githubusercontent.com/117044049/201496408-089558dc-8821-4eda-99b1-13cd7584bc7b.png)](https://files.getrektby.us/gciIqT7VKFcI.osk)
