@@ -51,7 +51,7 @@ this is where the natori skin should've been, thanks coven
 # [Seoul V9 Personal Shige Edit](https://femboye.s-ul.eu/j4j9TgA1) | [Preview](https://youtu.be/5Ai_tGU9oMc)
 [![screenshot017](https://user-images.githubusercontent.com/45379301/206877990-c33e1b56-b2a7-4ad9-95c4-2f0333a6400d.png)](https://femboye.s-ul.eu/j4j9TgA1)
 
-# [aetrnaMikoto](https://femboye.s-ul.eu/1Oray1gW) | [Preview](https://youtu.be/6w_BfxtB6wA)
+# [aetrnaMikoto](https://femboye.s-ul.eu/RTPfV8Zk) | [Preview](https://youtu.be/6w_BfxtB6wA)
 [![screenshot018](https://user-images.githubusercontent.com/45379301/206878153-e741a442-39c7-4e8e-9139-79026386792e.png)](https://femboye.s-ul.eu/1Oray1gW)
 
 # [aetrnus remake](https://chip.s-ul.eu/yqbrtpXZ) | [Preview](https://youtu.be/87aJfQE5c10?t=70)
