@@ -54,9 +54,8 @@ this is where the natori skin should've been, thanks coven
 # [aetrnaMikoto](https://femboye.s-ul.eu/RTPfV8Zk) | [Preview](https://youtu.be/6w_BfxtB6wA)
 [![screenshot018](https://user-images.githubusercontent.com/45379301/206878153-e741a442-39c7-4e8e-9139-79026386792e.png)](https://femboye.s-ul.eu/1Oray1gW)
 
-# [aetrnus remake](https://chip.s-ul.eu/yqbrtpXZ) | [Preview](https://youtu.be/87aJfQE5c10?t=70)
+# [aetrnus](https://femboye.s-ul.eu/XKSSPoE8) | [Preview](https://youtu.be/87aJfQE5c10?t=70)
 [![screenshot090](https://user-images.githubusercontent.com/45379301/208765301-ab6e816c-e050-407f-b613-b7884e28b9a9.png)](https://chip.s-ul.eu/yqbrtpXZ)
-unfinished doesnt have the failsound and applause literally unplayable smh i fell off kms
 
 # [whatever the fuck this is](https://femboye.s-ul.eu/6prtsbXf)
 [![screenshot019](https://user-images.githubusercontent.com/45379301/206878434-e52d6d73-2db6-4a2b-a9c4-e9cb68d4ca58.png)](https://femboye.s-ul.eu/6prtsbXf)
