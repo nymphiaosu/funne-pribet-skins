@@ -36,11 +36,11 @@ this is where the natori skin should've been, thanks coven
 # [Plz Enjoy Game Fusion Skin](https://femboye.s-ul.eu/VBljtivB) | [Preview](https://www.youtube.com/watch?v=XWj_JITME5o)
 [![screenshot188](https://user-images.githubusercontent.com/117044049/201572749-23158f06-6380-4d02-8399-ca0a3d1752fd.png)](https://femboye.s-ul.eu/VBljtivB)
 
-# [Matrix SMT](https://files.getrektby.us/Ao24I67AJBef.osk) | [Preview](https://www.youtube.com/watch?v=eV8EcmUPEXI)
-# [Matrix SMT 2](https://files.getrektby.us/5ag_bqYMdKVm.osk) | effectively the same skin but different ui, no preview needed
+# [Matrix SMT](https://files.getrektby.us/y0E1km8syIZs.osk) | [Preview](https://www.youtube.com/watch?v=eV8EcmUPEXI)
+# [Matrix SMT 2](https://files.getrektby.us/MlVd_MkaRVrP.osk) | effectively the same skin but different ui, no preview needed
 [![mpv-shot0001](https://user-images.githubusercontent.com/45379301/204169871-813734b8-5cf1-4d41-898e-b19885c4c22a.jpg)](https://files.getrektby.us/Ao24I67AJBef.osk)
 
-# [Matrix Mapping Skin](https://files.getrektby.us/zgwSgrKimpzc.osk ) | [Preview](https://twitter.com/DreamEmulation/status/1591758012829806594)
+# [Matrix Mapping Skin](https://files.getrektby.us/CTwSTbsgh9TU.osk ) | [Preview](https://twitter.com/DreamEmulation/status/1591758012829806594)
 [![image](https://user-images.githubusercontent.com/45379301/204318896-b9761a55-1189-4272-abaa-2612df883729.png)](https://files.getrektby.us/zgwSgrKimpzc.osk )
 
 # [Rafis HDDT Original](https://femboye.s-ul.eu/bQ5DUPkC) | [Preview](https://www.youtube.com/watch?v=M6SPs67ZPGw)
