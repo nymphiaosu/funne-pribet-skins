@@ -83,3 +83,8 @@ cursor is in one of the folders inside the skin nOOBER!!!!!!!!!!
 # [howl ncro edit](https://ncronfntophliac.s-ul.eu/mTspLkm9) | [Preview](https://www.youtube.com/watch?v=NsqeZht3xeY)
 [![image](https://user-images.githubusercontent.com/45379301/209898235-d80299aa-2fe9-4ca2-9ede-c2ad1b50fb3c.png)](https://ncronfntophliac.s-ul.eu/mTspLkm9)
 not private but ncron is a real one and the skin is good so here you go
+
+# [not drain but emo (zaqqy moment)](https://drive.google.com/file/d/1P8iV1_NVr9bC64w8Jc5JBAEMWsCl3Ply/view?usp=sharing) | [Preview](https://www.youtube.com/watch?v=siyNgpU8rkA)
+![image](https://user-images.githubusercontent.com/117044049/220751920-09e4dc48-1fa4-408d-acab-9d8f38a0afb6.png)
+also not exactly private but its extremely annoying to get and zaqqy's a bitch so here you go
+
