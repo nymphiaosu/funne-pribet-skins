@@ -85,6 +85,10 @@ cursor is in one of the folders inside the skin nOOBER!!!!!!!!!!
 not private but ncron is a real one and the skin is good so here you go
 
 # [not drain but emo (zaqqy moment)](https://drive.google.com/file/d/1P8iV1_NVr9bC64w8Jc5JBAEMWsCl3Ply/view?usp=sharing) | [Preview](https://www.youtube.com/watch?v=siyNgpU8rkA)
-![image](https://user-images.githubusercontent.com/117044049/220751920-09e4dc48-1fa4-408d-acab-9d8f38a0afb6.png)
+[![image](https://user-images.githubusercontent.com/117044049/220751920-09e4dc48-1fa4-408d-acab-9d8f38a0afb6.png)](https://drive.google.com/file/d/1P8iV1_NVr9bC64w8Jc5JBAEMWsCl3Ply/view?usp=sharing)
 also not exactly private but its extremely annoying to get and zaqqy's a bitch so here you go
+
+# [trinkets by Raelza, Nymphia, & others](https://cdn.discordapp.com/attachments/1086073835700375593/1107448517686984754/Raelza_WIP_Public_Release.osk) | [Preview](https://www.youtube.com/watch?v=oY6BgbUnoSk)
+[![screenshot656](https://github.com/nymphiaosu/funne-pribet-skins/assets/117044049/f0493882-fa8b-4030-b680-54d2edcfc5fb)](https://cdn.discordapp.com/attachments/1086073835700375593/1107448517686984754/Raelza_WIP_Public_Release.osk)
+nymphia github exclusive release11!!
 
