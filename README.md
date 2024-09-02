@@ -91,4 +91,5 @@ also not exactly private but its extremely annoying to get and zaqqy's a bitch s
 # [trinkets by Raelza, Nymphia, & others](https://cdn.discordapp.com/attachments/1086073835700375593/1107448517686984754/Raelza_WIP_Public_Release.osk) | [Preview](https://www.youtube.com/watch?v=oY6BgbUnoSk)
 [![screenshot656](https://github.com/nymphiaosu/funne-pribet-skins/assets/117044049/f0493882-fa8b-4030-b680-54d2edcfc5fb)](https://cdn.discordapp.com/attachments/1086073835700375593/1107448517686984754/Raelza_WIP_Public_Release.osk)
 nymphia github exclusive release11!!
+edit: not anymore, thank you whoever runs the damoon git very awesome of you to do
 
