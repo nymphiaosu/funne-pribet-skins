@@ -15,7 +15,7 @@ this is where the natori skin should've been, thanks coven
 # [selyu vento edit](https://femboye.s-ul.eu/rTolC5zx) | [Preview](https://www.youtube.com/watch?v=bifEZg40IWQ)
 [![screenshot144](https://user-images.githubusercontent.com/117044049/201496582-c6e236db-5a33-43f2-864d-d459ef843b90.png)](https://femboye.s-ul.eu/rTolC5zx)
 
-# [A1Lyncical](https://femboye.s-ul.eu/xTIQ28x1)
+# [A1Lynical](https://femboye.s-ul.eu/xTIQ28x1)
 [![screenshot151](https://user-images.githubusercontent.com/117044049/201505403-6cf8756e-0e9c-4fb7-bf88-497cd8d6662f.png)](https://femboye.s-ul.eu/xTIQ28x1)
 
 # [if my heart had wings](https://femboye.s-ul.eu/vV6DYb9i)
